@@ -1,1 +1,1 @@
-proffesional at not needing a github account.
+expert at not needing a github account.
